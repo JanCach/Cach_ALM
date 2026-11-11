@@ -1,0 +1,1 @@
+# Projekt Aloritmy – Deník
